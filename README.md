@@ -9,4 +9,4 @@ _⭐my pet is a Poodle .![image](https://github.com/Sherryixuan/stats220/assets/
 
 _⭐my major is Data Science. Here is the link to learn more about my major(https://www.online.auckland.ac.nz/postgraduate-programmes/science/postgraduate-certificate-in-data-science/?utm_source=google&utm_medium=cpc&utm_campaign=GS%20-%20TOF%20
 
-_⭐my favorite movie (https://youtu.be/jWM0ct-OLsM)
+_⭐my favorite movie character —— Nick & Judy (https://www.youtube.com/watch?v=LxvoWRct4eI)
